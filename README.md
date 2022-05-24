@@ -1,6 +1,6 @@
 ### Olá. Eu sou Rebekah. Muito prazer!
 
-- 🔭 Atualmente estou trabalhando com o ensino de desenho, arte e geometria. 
+- 🔭 Atualmente estou procurando por um estágio. 
 - 🌱 Estou estudando Expressão Gráfica e me especializando em UX/UI Design.
 - 📫 Contato: rebekah.rf.fernandes@gmail.com
 
